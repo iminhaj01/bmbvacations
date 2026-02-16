@@ -1,2 +1,0 @@
-# bmbvacations
-BMB Vacation Homes
